@@ -2,5 +2,4 @@
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning crypto
 - 💞️ I’m looking to collaborate on crypto projects
-- 📫 How to reach me ... on discord by f04ever#5211
--                                      in server Noso Cryptocurrency https://discord.gg/wCCDv4Cn
+- 📫 How to reach me ... on discord by f04ever#5211 , server Noso Cryptocurrency https://discord.gg/wCCDv4Cn
